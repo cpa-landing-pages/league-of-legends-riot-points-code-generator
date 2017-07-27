@@ -1,4 +1,4 @@
-### League Of Legends Codes
+### League Of Legends - Riot Points Code Generator
 
 #### About
 ---
